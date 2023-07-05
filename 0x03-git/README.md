@@ -1,0 +1,1 @@
+Ready for hard things
